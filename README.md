@@ -1,2 +1,2 @@
-[SPAM.zip](https://github.com/user-attachments/files/33308180/SPAM.zip)
+[SPAM.zip](https://github.com/user-attachments/files/33308180/SPAM.zip)    SORUMLULUK BANA AİT DEİLDİR
 

